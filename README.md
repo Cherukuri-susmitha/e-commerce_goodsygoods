@@ -43,4 +43,4 @@ _fill each filed with your info respectively_
 
 **Instagram** Click [Here](https://www.instagram.com/ch.susmitha) **@ch.susmitha**
 **LinkedIn** Click [Here](https://in.linkedin.com/in/cherukuri-susmitha-16bb42233/) **@ch.susmitha**
-**Twitter** Click [Here](https://facebook.com/susmitha.ch.142) **@ch.susmitha**
+**facebook** Click [Here](https://facebook.com/susmitha.ch.142) **@ch.susmitha**
